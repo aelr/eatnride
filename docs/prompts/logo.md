@@ -1,0 +1,1 @@
+Minimalistic Logo Design for EAT n RIDE. The word "EAT" should be in a silhouetted food truck. "RIDE" should be in a silhouetted bus.  This is a food truck business where people get meals before heading to (or from) work. Italic text to indicate the short window to get the food before leaving.
